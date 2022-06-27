@@ -1,1 +1,2 @@
 Elizabeth Ponce
+ponceel@oregonstate.edu
